@@ -1,4 +1,4 @@
-# 
+# secure sandwich attack bot | buy-pressure-analysis + pump-detection offers the most advanced sandwich attack bot, with buy-pressure-analysis and pump-detection. Ideal for
 
 
 
